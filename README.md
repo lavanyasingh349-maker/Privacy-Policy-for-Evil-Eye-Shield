@@ -1,0 +1,1 @@
+# Privacy-Policy-for-Evil-Eye-Shield
